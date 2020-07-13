@@ -1,3 +1,3 @@
 - 🔭 I’m Shane Davis
-- 🤔 I’m on [Twitter](https://twitter.com/Shane_B_Davis)
-- ⚡ Fun fact: I sell cloud-themed t-shirts [Shirts By Shane](https://www.shirtsbyshane.com)
+- 🤔 I’m on Twitter [https://twitter.com/Shane_B_Davis](https://twitter.com/Shane_B_Davis)
+- ⚡ Fun fact: I sell cloud-themed t-shirts [https://www.shirtsbyshane.com](https://www.shirtsbyshane.com)
