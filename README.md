@@ -2,4 +2,4 @@
 - 📫 How to reach me: [https://www.linkedin.com/in/shanebdavis/](https://www.linkedin.com/in/shanebdavis/)
 - 🤔 I’m on Twitter [https://twitter.com/Shane_B_Davis](https://twitter.com/Shane_B_Davis)
 - 💬 I have authored many courses at Skill Me Up [https://skillmeup.com/author/Shane_Davis](https://skillmeup.com/author/Shane_Davis)
-- ⚡ Fun fact: I sell cloud-themed t-shirts [https://www.shirtsbyshane.com](https://www.shirtsbyshane.com)
+- ⚡ Fun fact: I sell cloud-themed t-shirts [https://www.shirtsbyshane.com](https://www.shirtsbyshane.com) an all proceeds go to Girls Who Code
