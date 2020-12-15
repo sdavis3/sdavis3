@@ -1,5 +1,5 @@
 - 🔭 I’m Shane Davis
-- 📫 How to reach me: [https://www.linkedin.com/in/shanebdavis/](https://www.linkedin.com/in/shanebdavis/)
-- 🤔 I’m on Twitter [https://twitter.com/Shane_B_Davis](https://twitter.com/Shane_B_Davis)
+- 📫 Reach me at [https://www.linkedin.com/in/shanebdavis/](https://www.linkedin.com/in/shanebdavis/)
+- 🤔 I’m on Twitter at [https://twitter.com/Shane_B_Davis](https://twitter.com/Shane_B_Davis)
 - 💬 I have authored many courses at Skill Me Up [https://skillmeup.com/author/Shane_Davis](https://skillmeup.com/author/Shane_Davis)
 - 👕 Buy my cloud-themed t-shirts at [https://www.shirtsbyshane.com](https://www.shirtsbyshane.com) and all proceeds go to Girls Who Code
