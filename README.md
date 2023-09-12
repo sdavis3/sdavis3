@@ -1,5 +1,4 @@
 - 🔭 I’m Shane Davis
 - 📫 Reach me at [https://www.linkedin.com/in/shanebdavis/](https://www.linkedin.com/in/shanebdavis/)
 - 🤔 I’m on Twitter at [https://twitter.com/Shane_B_Davis](https://twitter.com/Shane_B_Davis)
-- 🤔 I'm on Mastondon at @shane_b_davis@hachyderm.io
 - 👕 I've got merch! Find my designs at [https://www.shirtsbyshane.com](https://www.shirtsbyshane.com) with all proceeds going to [Girls Who Code](https://www.girlswhocode.com)
